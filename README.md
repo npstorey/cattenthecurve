@@ -12,7 +12,7 @@ Cats (2019) is availible for [digital purchse](https://www.playbill.com/article/
 
 So on March 17 (8pm EST in NYC) invite your friends to stream Cats to their TVs and fire up a group text message, Google Hangout, or Facebook group and watch this brilliant movie* together from the comfort of everyone's own home.
 
-We can all help to lessen the spread of Coronavirus by joining the movement to #CattenTheCurve
+**We can all help to lessen the spread of Coronavirus by joining the movement to #CattenTheCurve**
 
 *Note: I have not seen the movie Cats yet, and have no affiliation with the producers of the film. My entire motivation is to use the cult status of Cats to spread information about the importance to social distancing by linking the Cats (2019) film to the brilliant twitter hashtags of #CattenTheCurve and #FlattenTheCurve
 
