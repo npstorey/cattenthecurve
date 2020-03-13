@@ -1,4 +1,4 @@
-### Social distancing is hard. Make it fun with Cats!
+# Social distancing is hard. Make it fun with Cats!
 
 ![Cats](https://upload.wikimedia.org/wikipedia/en/thumb/c/cf/Cats_2019_poster.jpg/220px-Cats_2019_poster.jpg)
 
