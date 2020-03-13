@@ -6,7 +6,7 @@ Social distancing is hard. Make it fun with Cats!
 
 [CattenTheCurve](https://twitter.com/amdar1ing/status/1237880129575157760) is way more fun than [#FlattenTheCurve](https://www.flattenthecurve.com/)
 
-![CattenTheCurve](https://twitter.com/amdar1ing/status/1237880129575157760/photo/1)
+![CattenTheCurve](https://pbs.twimg.com/media/ES3VTrgUMAAyEFp?format=jpg&name=medium)
 
 ## On March 17 lets all stay home and watch Cats!
 
