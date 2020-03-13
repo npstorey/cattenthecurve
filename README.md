@@ -16,7 +16,7 @@ So on March 17 (8pm EST in NYC) invite your friends to stream Cats to their TVs 
 
 *Note: I have not seen the movie Cats yet, and have no affiliation with the producers of the film. My entire motivation is to use the cult status of Cats to spread information about the importance to social distancing by linking the Cats (2019) film to the brilliant twitter hashtags of #CattenTheCurve and #FlattenTheCurve
 
-In depth info at [flattenthecurve.com}(https://www.flattenthecurve.com/)
+In depth info at [flattenthecurve.com](https://www.flattenthecurve.com/)
 
 Thank you to [Julie McMurry, MPH](https://twitter.com/figgyjam), creator of #FlattenTheCurve and [Anne Marie Darling](https://twitter.com/amdar1ing), creator of #CattenTheCurve
 
