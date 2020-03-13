@@ -10,7 +10,7 @@ These are stressful times and it is important to find ways to connect to our com
 
 [CattenTheCurve](https://twitter.com/amdar1ing/status/1237880129575157760) makes it way more fun to [#FlattenTheCurve](https://www.flattenthecurve.com/).
 
-## On March 17 lets all stay home and watch Cats!
+## On March 17 let's all stay home and watch Cats!
 
 Cats (2019) is availible for [digital purchse](https://www.playbill.com/article/cats-movie-sets-digital-blu-ray-and-dvd-release-dates) on March 17 and [may be availible elsewhere for free](https://twitter.com/cats2019_hd?lang=en).
 
