@@ -1,6 +1,6 @@
 The Coronavirus pandemic is evolving quickly, and it is important to stay informed of up to date information from the [Center for Disease Control](https://www.cdc.gov/coronavirus/2019-ncov/index.html) and Local Health Departments.
 
-Many public health experts have stressed the importance of social distancing as a means to Flatten The Curve (**lesson the impact of the pandemic on those most vulnerable**). #CattenTheCurve is a fun meme to help spread the word about the importance of social distancing and other actions that can [#FlattenTheCurve](https://www.flattenthecurve.com/).
+Many public health experts have stressed the importance of social distancing as a means to **lesson the impact of the pandemic on those most vulnerable**. #CattenTheCurve is a fun meme to help spread the word about the importance of social distancing and other actions that can [#FlattenTheCurve](https://www.flattenthecurve.com/).
 
 These are stressful times and it is important to find ways to connect to our community in a way that helps us feel supported. Let’s find creative ways to hang out. Watch a bad movie with your friends! 
 
