@@ -1,4 +1,4 @@
-![](https://my.uca.edu/wp-content/uploads/emergency-250x212.png =250x250) The Coronavirus pandemic is evolving quickly, and it is important to stay informed of up to date information from the [Center for Disease Control](https://www.cdc.gov/coronavirus/2019-ncov/index.html) and Local Health Departments.
+![](https://my.uca.edu/wp-content/uploads/emergency-250x212.png width=100) The Coronavirus pandemic is evolving quickly, and it is important to stay informed of up to date information from the [Center for Disease Control](https://www.cdc.gov/coronavirus/2019-ncov/index.html) and Local Health Departments.
 
 Many public health experts have stressed the importance of social distancing as a means to Flatten The Curve (**lesson the impact of the pandemic on those most vulnerable**). #CattenTheCurve is a fun meme to help spread the word about the importance of #FlattenTheCurve.
 
