@@ -1,6 +1,6 @@
 ## Let's all #CattenTheCurve of the #CoronaVirus by staying home and watching the Cats movie!
 
-Social distancing is hard. Let's make it fun with Cats!
+Social distancing is hard. Make it fun with Cats!
 
 ![Cats](https://upload.wikimedia.org/wikipedia/en/thumb/c/cf/Cats_2019_poster.jpg/220px-Cats_2019_poster.jpg)
 
