@@ -6,8 +6,8 @@ These are stressful times and it is important to find ways to connect to our com
 
 # Social distancing is hard. Make it fun with Cats!
 
-![Cats](https://upload.wikimedia.org/wikipedia/en/thumb/c/cf/Cats_2019_poster.jpg/220px-Cats_2019_poster.jpg)
-![CattenTheCurve](https://pbs.twimg.com/media/ES3VTrgUMAAyEFp?format=jpg&name=medium)
+:-------------------------:|:-------------------------:
+![Cats](https://upload.wikimedia.org/wikipedia/en/thumb/c/cf/Cats_2019_poster.jpg/220px-Cats_2019_poster.jpg) | ![CattenTheCurve](https://pbs.twimg.com/media/ES3VTrgUMAAyEFp?format=jpg&name=medium)
 
 [CattenTheCurve](https://twitter.com/amdar1ing/status/1237880129575157760) is way more fun than [#FlattenTheCurve](https://www.flattenthecurve.com/)
 
