@@ -1,4 +1,4 @@
-# WORLDWIDE CATE PARTY
+# WORLDWIDE CATS PARTY
 Public health experts ask people to stay inside to social distance ourselves as a means to **lesson the impact of the pandemic on those most vulnerable**. #CattenTheCurve is a fun meme to help spread the word about the importance of social distancing and other actions that can [#FlattenTheCurve](https://www.flattenthecurve.com/).
 
 ## On Saturday March 21 let's all stay home and watch Cats!
