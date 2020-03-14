@@ -4,18 +4,15 @@ You've heard of [#FlattenTheCurve](https://www.flattenthecurve.com/). You've see
 
 ## On Saturday March 21 let's all stay home and watch Cats!
 
-These are stressful times and it is important to find ways to connect to our community in a way that helps us feel supported. Let’s find creative ways to hang out. Watch a bad movie with your friends! 
+Don't go out. Invite your friends to stream Cats to their TVs and fire up a group text message, Google Hangout, or Facebook group and watch this brilliant movie* together from the comfort of everyone's own home.
 
 ![Cats](https://upload.wikimedia.org/wikipedia/en/thumb/c/cf/Cats_2019_poster.jpg/220px-Cats_2019_poster.jpg) | ![CattenTheCurve](https://pbs.twimg.com/media/ES3VTrgUMAAyEFp?format=jpg&name=small)
 
-Cats (2019) is availible for [digital purchse](https://www.playbill.com/article/cats-movie-sets-digital-blu-ray-and-dvd-release-dates) but maybe [Universal Pictures](https://twitter.com/UniversalPics) will let us have it for discount/free to help us all CattenTheCurve?
-
-## Saturday March 21 (8pm EST)
-Don't go out. Invite your friends to stream Cats to their TVs and fire up a group text message, Google Hangout, or Facebook group and watch this brilliant movie* together from the comfort of everyone's own home.
+Cats (2019) is availible for [digital purchse](https://www.playbill.com/article/cats-movie-sets-digital-blu-ray-and-dvd-release-dates) but maybe [Universal Pictures](https://twitter.com/UniversalPics) will let us have it for discount/free to help us all #CattenTheCurve?
 
 **We can all help to lessen the spread of Coronavirus by joining the movement to #CattenTheCurve**
 
-*Note: I have not seen the movie Cats yet, and have no affiliation with the producers of the film. My entire motivation is to use the cult status of Cats to spread information about the importance to social distancing by linking the Cats (2019) film to the brilliant twitter hashtags of #CattenTheCurve and #FlattenTheCurve
+*Note: I have not seen the movie Cats yet, and have no affiliation with the producers of the film.
 
 ## Learn More About What You Can Do
 
