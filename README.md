@@ -11,7 +11,7 @@ These are stressful times and it is important to find ways to connect to our com
 Cats (2019) is availible for [digital purchse](https://www.playbill.com/article/cats-movie-sets-digital-blu-ray-and-dvd-release-dates) but maybe [Universal Pictures](https://twitter.com/UniversalPics) will let us have it for discount/free to help us all CattenTheCurve?
 
 ## Saturday March 21 (8pm EST)
-Invite your friends to stream Cats to their TVs and fire up a group text message, Google Hangout, or Facebook group and watch this brilliant movie* together from the comfort of everyone's own home.
+Don't go out. Invite your friends to stream Cats to their TVs and fire up a group text message, Google Hangout, or Facebook group and watch this brilliant movie* together from the comfort of everyone's own home.
 
 **We can all help to lessen the spread of Coronavirus by joining the movement to #CattenTheCurve**
 
