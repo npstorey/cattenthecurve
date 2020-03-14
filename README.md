@@ -23,6 +23,6 @@ Thank you to [Julie McMurry, MPH](https://twitter.com/figgyjam), creator of [#Fl
 <blockquote class="twitter-tweet"><p lang="en" dir="ltr">It may come as a surprise to some of you. But this is the first time I&#39;m seeing this. Which means a lot of people haven&#39;t seen it yet. Do the work. You got this. <a href="https://twitter.com/hashtag/FlattenTheCurve?src=hash&amp;ref_src=twsrc%5Etfw">#FlattenTheCurve</a> <a href="https://twitter.com/hashtag/Catteningthecurve?src=hash&amp;ref_src=twsrc%5Etfw">#Catteningthecurve</a> <a href="https://twitter.com/hashtag/pandemic?src=hash&amp;ref_src=twsrc%5Etfw">#pandemic</a> I&#39;m going to add this to the guide right now. <a href="https://t.co/6liCwqUjuQ">https://t.co/6liCwqUjuQ</a></p>&mdash; Julie McMurry, MPH keep calm and #flattenthecurve (@figgyjam) <a href="https://twitter.com/figgyjam/status/1238301836676698112?ref_src=twsrc%5Etfw">March 13, 2020</a></blockquote>
 
 [Twitter](https://twitter.com/CattenTheCurve)
-Facebook
+[Facebook](http://facebook.com/cattenthecurve)
 Instagram
 [Github](https://github.com/npstorey/cattenthecurve)
