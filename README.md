@@ -4,7 +4,7 @@ You've heard of [#FlattenTheCurve](https://www.flattenthecurve.com/). You've see
 
 ## On Saturday March 21 let's all stay home and watch Cats!
 
-Don't go out. Invite your friends to stream Cats to their TVs and fire up a group text message, Google Hangout, or Facebook group and watch this brilliant movie* together from the comfort of everyone's own home.
+Don't go out. Invite your friends to stream Cats to their TVs and fire up a group text message, Google Hangout, or Facebook group and watch this brilliant* movie together from the comfort of everyone's own home.
 
 ![Cats](https://upload.wikimedia.org/wikipedia/en/thumb/c/cf/Cats_2019_poster.jpg/220px-Cats_2019_poster.jpg) | ![CattenTheCurve](https://pbs.twimg.com/media/ES3VTrgUMAAyEFp?format=jpg&name=small)
 
