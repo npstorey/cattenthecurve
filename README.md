@@ -1,4 +1,4 @@
-Public health experts ask people to stay inside to social distance ourselves as a means to **lesson the impact of the pandemic on those most vulnerable**.
+Public health experts ask people to stay inside to social distance ourselves as a means to **lessen the impact of the pandemic on those most vulnerable**.
 
 You've heard of [#FlattenTheCurve](https://www.flattenthecurve.com/). You've seen [#CattenTheCurve](https://twitter.com/amdar1ing/status/1237880129575157760). Let's them put them together in the most effective way possible.
 
@@ -6,11 +6,11 @@ You've heard of [#FlattenTheCurve](https://www.flattenthecurve.com/). You've see
 
 Don't go out. Not today. Not tomorrow. Not until this pandemic is clearly under control. Watch a movie (like Cats) instead.
 
-On Saturday March 21 let's all invite our friends to stream Cats to their TVs and fire up a group text message, Google Hangout, or Facebook group and watch this brilliant* movie together from the comfort of everyone's own home.
+On Saturday, March 21 let's all invite our friends to stream Cats to their TVs and fire up a group text message, Google Hangout, or Facebook group and watch this brilliant* movie together from the comfort of everyone's own home.
 
 ![Cats](https://upload.wikimedia.org/wikipedia/en/thumb/c/cf/Cats_2019_poster.jpg/220px-Cats_2019_poster.jpg) | ![CattenTheCurve](https://pbs.twimg.com/media/ES3VTrgUMAAyEFp?format=jpg&name=small)
 
-Cats (2019) is availible for [digital purchse](https://www.playbill.com/article/cats-movie-sets-digital-blu-ray-and-dvd-release-dates) but maybe [Universal Pictures](https://twitter.com/UniversalPics) will let us have it for discount/free to help us all #CattenTheCurve?
+Cats (2019) is available for [digital purchase](https://www.playbill.com/article/cats-movie-sets-digital-blu-ray-and-dvd-release-dates) but maybe [Universal Pictures](https://twitter.com/UniversalPics) will let us have it for discount/free to help us all #CattenTheCurve?
 
 **We can all help to lessen the spread of Coronavirus by joining the movement to #CattenTheCurve**
 
@@ -18,7 +18,7 @@ Cats (2019) is availible for [digital purchse](https://www.playbill.com/article/
 
 ## Learn More About What You Can Do
 
-In depth info at [flattenthecurve.com](https://www.flattenthecurve.com/).
+In-depth info at [flattenthecurve.com](https://www.flattenthecurve.com/).
 
 Thank you to [Julie McMurry, MPH](https://twitter.com/figgyjam), creator of [#FlattenTheCurve](https://www.flattenthecurve.com/) and [Anne Marie Darling](https://twitter.com/amdar1ing), creator of [#CattenTheCurve](https://twitter.com/amdar1ing/status/1237880129575157760)
 
