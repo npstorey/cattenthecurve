@@ -18,7 +18,7 @@ Regular Cats not weird enough for you? Apparently there is a version where all t
 
 [#ReleaseTheButtholeCut](https://twitter.com/hashtag/ReleaseTheButtholeCut)
 
-<blockquote class="twitter-tweet"><p lang="en" dir="ltr">Release the Butthole Cut of Cats!! <a href="https://t.co/C2VgPqSv1L">https://t.co/C2VgPqSv1L</a></p>&mdash; Seth Rogen (@Sethrogen) <a href="https://twitter.com/Sethrogen/status/1240138000249630721?ref_src=twsrc%5Etfw">March 18, 2020</a></blockquote>
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">A VFX producer friend of a friend was hired in November to finish some of the 400 effects shots in <a href="https://twitter.com/catsmovie?ref_src=twsrc%5Etfw">@catsmovie</a>. His entire job was to remove CGI buttholes that had been inserted a few months before. Which means that, somewhere out there, there exists a butthole cut of Cats</p>&mdash; Jack Waz (@jackwaz) <a href="https://twitter.com/jackwaz/status/1240135051288948742?ref_src=twsrc%5Etfw">March 18, 2020</a></blockquote>
 
 ![Cats](https://upload.wikimedia.org/wikipedia/en/thumb/c/cf/Cats_2019_poster.jpg/220px-Cats_2019_poster.jpg) | ![CattenTheCurve](https://pbs.twimg.com/media/ES3VTrgUMAAyEFp?format=jpg&name=small)
 
