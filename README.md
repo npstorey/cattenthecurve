@@ -6,13 +6,19 @@ You've heard of [#FlattenTheCurve](https://www.flattenthecurve.com/). You've see
 
 Don't go out. Not today. Not tomorrow. Not until this pandemic is clearly under control. Watch a movie (like Cats) instead.
 
-TONIGHT, Thursday, March 19 let's all [invite our friends](https://www.facebook.com/events/209163706819909/) to stream Cats to their TVs and fire up a group text message, Google Hangout, or Facebook group and watch this brilliant* movie together from the comfort of everyone's own home.
+Let's all [invite our friends](https://www.facebook.com/events/209163706819909/) to stream Cats to their TVs and fire up a group text message, Google Hangout, or Facebook group and watch this brilliant* movie together from the comfort of everyone's own home.
 
 Don't want to pay to own the digitl rights to watch CATS?
 
 [Vulture is hosting an Instagram watch party](https://www.vulture.com/2020/03/watch-cats-with-us-on-instagram-live-tonight.html)
 
 [Seth Rogen live tweeted watching CATS last night](https://twitter.com/Sethrogen/status/1240122704226811906). Maybe he will do it again?
+
+Regular Cats not weird enough for you? Apparently there is a version where all the the cats have digial buttholes.
+
+[#ReleaseTheButtholeCut](https://twitter.com/hashtag/ReleaseTheButtholeCut)
+
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">Release the Butthole Cut of Cats!! <a href="https://t.co/C2VgPqSv1L">https://t.co/C2VgPqSv1L</a></p>&mdash; Seth Rogen (@Sethrogen) <a href="https://twitter.com/Sethrogen/status/1240138000249630721?ref_src=twsrc%5Etfw">March 18, 2020</a></blockquote>
 
 ![Cats](https://upload.wikimedia.org/wikipedia/en/thumb/c/cf/Cats_2019_poster.jpg/220px-Cats_2019_poster.jpg) | ![CattenTheCurve](https://pbs.twimg.com/media/ES3VTrgUMAAyEFp?format=jpg&name=small)
 
